@@ -14,4 +14,14 @@ Users are responsible for their own actions and decisions regarding substance co
 
 Please consult local laws and regulations, seek professional advice, and exercise responsible behavior when engaging with substances.
 
-## Credits
+## Sources and References
+
+### Alcohol
+
+Wikipedia contributors. "Blood alcohol content." Wikipedia, The Free Encyclopedia. Wikipedia, The Free Encyclopedia, 25 Apr. 2023. Web. 22 May 2023. \
+Wikipedia contributors. "Short-term effects of alcohol consumption." Wikipedia, The Free Encyclopedia. Wikipedia, The Free Encyclopedia, 27 Mar 2023. Web. 22 May 2023.
+
+### Cannabis
+
+Wikipedia contributors. "Effects of cannabis." Wikipedia, The Free Encyclopedia. Wikipedia, The Free Encyclopedia, 22 May 2023. Web. 22 May 2023.
+Santos-Longhurst, Adrienne. “How Long Does a Marijuana High Last? What to Expect.” Healthline, 28 Feb. 2020. Web. 22 May 2023.
