@@ -1,5 +1,7 @@
 # EnjoySafe
 
+# **This repository has been temporarily archived because of a complete lack of inspiration and motivation**
+
 Ever wonder when the fun is going to kick in ? Or how much fun you have had tonight ? Then this is the app for you !
 
 ## DISCLAIMER
